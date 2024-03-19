@@ -9,6 +9,7 @@
 -📫 How to reach me: You can reach me via email at sudhirpatil8980@gmail.com
 
 -😄 Pronouns: He/Him
+
 -⚡ Fun fact: I enjoy solving puzzles and watching moovies and playing games in my free time.
 
 <!---
